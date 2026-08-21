@@ -1,4 +1,4 @@
-# Skydiver 👨‍💻
+# Katarzyna 👨‍💻
 
 # Software Engineer
   
