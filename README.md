@@ -1,4 +1,4 @@
-# Katarzyna 👨‍💻
+# Arina Eliste 👨‍💻
 
 # Software Engineer
   
