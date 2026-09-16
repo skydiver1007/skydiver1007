@@ -1,5 +1,3 @@
-# Arina Eliste 👨‍💻
-
 # Software Engineer
   
 ## 🧐 About
